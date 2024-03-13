@@ -5,5 +5,5 @@
 
 <br>
 
-https://github.com/RenanBorba/bi-gestaoVendas/assets/48495838/89918d5d-12f3-4bc8-90b2-a15b69613974
+https://github.com/RenanBorba/bi-gestaoVendas/assets/48495838/75f04a2e-6611-4584-bb5f-1e7e787be6e6
 
